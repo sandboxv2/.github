@@ -1,0 +1,1 @@
+https://sandbox.fr.to
